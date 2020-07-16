@@ -1,1 +1,4 @@
 # UAS-CS2
+18090099
+Tri Joyo P
+4B
